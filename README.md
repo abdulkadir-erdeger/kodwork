@@ -1,4 +1,4 @@
 # kodwork
 
 Tanıtım: 
-![alt text](https://www.linkpicture.com/q/kodwork.png "Logo Title Text 1")
+![alt text](https://lh3.googleusercontent.com/d/1wfznckbErCC5hsihScglu3VExQVMApwe "Logo Title Text 1")
